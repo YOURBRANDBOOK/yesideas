@@ -1,2 +1,0 @@
-# yesideas
-hr
